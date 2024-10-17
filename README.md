@@ -37,7 +37,7 @@ We may update our privacy policy from time to time. Any changes will be posted o
 ## Contact Us
 
 If you have any questions about this privacy policy, please contact us at:
-- [Your Email Address]
+- baherbshokry@gmail.com
 
 ---
 
